@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @N1TR0783
+- 👀 I’m Trying To Create Software That Can Help With All Types Of Fraud (for educational purposes)
+- 🌱 I’m currently trying to find someone to help me 
+- 💞️ I’m looking to collaborate on Discord or Telegram
